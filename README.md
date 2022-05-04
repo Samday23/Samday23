@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Samday23
+- 👀 I’m interessado em aprender ciencia de dados!
+- S2 aqui colocarei todo o meu material de estudos e projetos iniciais, espero que de tudo certo!...
